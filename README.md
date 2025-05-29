@@ -1,4 +1,4 @@
 ## Hi there 👋
 
-![Futuristic Tech Cover](https://kartikmehtablog.com/wp-content/uploads/2022/12/AdobeStock_419269782-scaled.jpeg)
+![Futuristic Tech Cover](https://github.com/vamsikrishnacr7/vamsikrishnacr7/blob/main/Desktop%20-%201.png)
 
